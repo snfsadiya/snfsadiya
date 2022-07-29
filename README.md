@@ -15,3 +15,5 @@ Here are some ideas to get you started:
 hlo 
 guys
 snapchat
+happy friendship day 
+sad
